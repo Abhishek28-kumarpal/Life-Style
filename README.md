@@ -1,1 +1,1 @@
-# Life-Style
+# Life-Style Store
